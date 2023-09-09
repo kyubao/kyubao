@@ -1,5 +1,7 @@
+
+![11301424_69b9a](https://github.com/kyubao/kyubao/assets/144448426/66071dd8-e102-46f8-98cb-e2fe4e9e34f6)
+
 pt rulez ;33
-![sal](https://github.com/kyubao/kyubao/assets/144448426/f6cfb024-2a3d-45f4-982e-585670d1a90e)
 
 no copying/taking inspo/stealing my skins
 
