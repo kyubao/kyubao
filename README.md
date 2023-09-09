@@ -22,6 +22,7 @@ mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on t
 usually seen on safe server with a deep-sea-prisoner/okegom pony
 
 i prefer semi verbal cuz idk how to continue convos
+
 i dont rlly chat much unless i ate a lot of sugar
 
 ### BOUNDARIES 
