@@ -25,6 +25,7 @@ i prefer semi verbal cuz idk how to continue convos
 
 i dont rlly chat much unless i ate a lot of sugar
 
+feel free to add me i dont mind1!1! ;P
 ### BOUNDARIES 
 
 c + h is definitely ok! [UNLESS I HAVE THE DND STATUS ON]
