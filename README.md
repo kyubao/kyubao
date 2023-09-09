@@ -5,7 +5,7 @@
 
 no copying/taking inspo/stealing my skins
 
-STATUS MEANINGS!
+### STATUS MEANINGS!
 
 [ online ] not doing anything/just on pt 
 
@@ -14,6 +14,8 @@ STATUS MEANINGS!
 [ away ] afk/offtab/busy ,, plz whisp me to int
 
 [ lf roleplay ] in a party
+
+### MORE ABT ME ON PT
 
 mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!
 
