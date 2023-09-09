@@ -1,5 +1,5 @@
 
-![11301424_69b9a](https://github.com/kyubao/kyubao/assets/144448426/66071dd8-e102-46f8-98cb-e2fe4e9e34f6)
+![sal](https://github.com/kyubao/kyubao/assets/144448426/60a24223-81d3-44fc-a7be-4c71009e1956)
 
 pt rulez ;33
 
