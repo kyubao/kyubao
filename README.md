@@ -1,7 +1,7 @@
 
 ![sal](https://github.com/kyubao/kyubao/assets/144448426/60a24223-81d3-44fc-a7be-4c71009e1956)
 
-pt rulez ;33
+###  PT RULEZ!!!
 
 no copying/taking inspo/stealing my skins
 
@@ -14,3 +14,7 @@ STATUS MEANINGS!
 [ away ] afk/offtab/busy ,, plz whisp me to int
 
 [ lf roleplay ] in a party
+
+mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!
+
+usually seen on safe server with a deep-sea-prisoner/okegom pony
