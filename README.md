@@ -23,7 +23,8 @@ usually seen on safe server with a deep-sea-prisoner/okegom pony
 
 i prefer semi verbal cuz idk how to continue convos
 
-##3 BOUNDARIES 
+### BOUNDARIES 
+
 c + h is definitely ok! [UNLESS I HAVE THE DND STATUS ON]
 
 giving items, booping is very ok  ,,, also same as the message on top of this!
