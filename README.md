@@ -17,7 +17,7 @@ no copying/taking inspo/stealing my skins
 
 ### MORE ABT ME ON PT
 
-mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!
+mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!,,  if u dont see me on pt i probs got bored
 
 usually seen on safe server with a deep-sea-prisoner/okegom pony
 
