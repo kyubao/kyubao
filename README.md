@@ -1,6 +1,5 @@
 
-![758922d8](https://github.com/kyubao/kyubao/assets/144448426/f370c312-f642-4d2e-920d-b669356fd8e3)
-hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
+![](https://watermelon.crd.co/assets/images/gallery05/dba95250.gif?v=ab2f6a73) hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
 
 ###  PT RULEZ!!! 
 
