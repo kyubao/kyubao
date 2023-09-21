@@ -1,7 +1,7 @@
 
 hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
 
-###  PT RULEZ!!! ![idate-okegom](https://github.com/kyubao/kyubao/assets/144448426/5cbe66dd-8478-4313-8b80-4c300ca7627d)
+###  PT RULEZ!!! 
 
 
 no copying/taking inspo/stealing my skins
@@ -32,3 +32,5 @@ feel free to add me i dont mind1!1! ;P
 c + h is definitely ok! [UNLESS I HAVE THE DND STATUS ON]
 
 giving items, booping is very ok  ,,, also same as the message on top of this!
+
+i love being cuddled / covered (being covered is ok for non rude reasons)
