@@ -1,5 +1,5 @@
 
-![sal](https://github.com/kyubao/kyubao/assets/144448426/60a24223-81d3-44fc-a7be-4c71009e1956)
+hey there! u probs found me on pony town am i right ??  	⸜(*ˊᗜˋ*)⸝
 
 ###  PT RULEZ!!!
 
