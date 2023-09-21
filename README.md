@@ -1,4 +1,4 @@
-
+https://text.is/yipee my friendies
 ![](https://watermelon.crd.co/assets/images/gallery05/dba95250.gif?v=ab2f6a73) hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
 
 ###  PT RULEZ!!! 
