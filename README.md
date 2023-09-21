@@ -1,5 +1,5 @@
 
-hey there! u probs found me on pony town am i right ??  	⸜(*ˊᗜˋ*)⸝
+hey there! u probs found me on pony town am i right ??  	⸜(*ˊ ᗜ ˋ*)⸝
 
 ###  PT RULEZ!!!
 
