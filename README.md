@@ -1,7 +1,8 @@
 
 hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
 
-###  PT RULEZ!!!
+###  PT RULEZ!!! ![idate-okegom](https://github.com/kyubao/kyubao/assets/144448426/5cbe66dd-8478-4313-8b80-4c300ca7627d)
+
 
 no copying/taking inspo/stealing my skins
 
