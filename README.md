@@ -36,8 +36,14 @@ giving items, booping is very ok  ,,, also same as the message on top of this!
 
 i love being cuddled / covered (being covered is ok for non rude reasons)
 
+
 ![f28ab42a](https://github.com/kyubao/kyubao/assets/144448426/5dfda7de-cc83-4352-b270-1bb75a3d53a2)
 ![c2d2b4cf](https://github.com/kyubao/kyubao/assets/144448426/cf4a7bac-2d9c-4284-b760-c1997a1866f9)
 ![c5490cca](https://github.com/kyubao/kyubao/assets/144448426/6549b4ff-14a2-4060-bef9-3ca1d3237bb9)
-![84b8c12d_original](https://github.com/kyubao/kyubao/assets/144448426/db247321-f7ac-4f6e-945d-3af1750c800f)
+![9d19d23c](https://github.com/kyubao/kyubao/assets/144448426/5e2ef9f5-7352-4acb-b271-6e6a2913a796)
+![302c5d39](https://github.com/kyubao/kyubao/assets/144448426/0a328250-9a8f-4148-a589-568d6c771423)
+![722a874e]
+(https://github.com/kyubao/kyubao/assets/144448426/2b14d43c-8754-4164-9500-3c5bde6167d1)
+/kyubao/assets/144448426/7d68a080-ed79-4f90-b688-63027c012085)
 ![8c28690f](https://github.com/kyubao/kyubao/assets/144448426/de3c7473-4c40-45a2-b06f-748514bf18e4)
+![c0ff5146](https://github.com/kyubao/kyubao/assets/144448426/111769c9-6130-4998-982b-5eb4f2912d87)
