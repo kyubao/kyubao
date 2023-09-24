@@ -30,7 +30,7 @@ i dont rlly chat much unless i ate a lot of sugar
 feel free to add me i dont mind1!1! ;P
 ### BOUNDARIES 
 
-c + h is definitely ok! [UNLESS I HAVE THE DND STATUS ON]
+c + h is extremely ok! [UNLESS I HAVE THE DND STATUS ON]
 
 giving items, booping is very ok  ,,, also same as the message on top of this!
 
