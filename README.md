@@ -6,6 +6,7 @@ https://text.is/yipee my friendies I LOVE YOU GUYS!!!
 
 
 no copying/taking inspo/stealing my skins
+dni troll nd tt/td poniez 
 
 ### STATUS MEANINGS!
 
