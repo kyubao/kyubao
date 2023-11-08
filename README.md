@@ -1,7 +1,6 @@
-https://text.is/yipee my friendies I LOVE YOU GUYS!!!
 
-![](https://watermelon.crd.co/assets/images/gallery05/dba95250.gif?v=ab2f6a73) hey there! u probs found me on pony town am i right ??  	⸜(〃°ω°〃)⸝
 
+![](https://watermelon.crd.co/assets/images/gallery05/dba95250.gif?v=ab2f6a73) haiaiaiaiiiiiaiiiiiiiGHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAI
 ###  PT RULEZ!!! 
 
 
