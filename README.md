@@ -20,13 +20,13 @@ dni troll nd tt/td poniez
 
 ### MORE ABT ME ON PT
 
-mostly on pt daily,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!,,  if u dont see me on pt i probs got bored
+inactive on pt,,,  u can find me near spawn, cave, bakery, below docks, on the beach!!!,,  if u dont see me on pt i probs got bored
 
-usually seen on safe server with a deep-sea-prisoner/okegom pony
+usually seen on safe server
 
 NOT THAT TALKATIVE SOMETIMES !!!
 
-i dont rlly chat much unless i ate a lot of sugar
+i dont rlly chat much unless i ate a lot of sugar/feel silly
 
 feel free to add me i dont mind1!1! ;P
 ### BOUNDARIES 
