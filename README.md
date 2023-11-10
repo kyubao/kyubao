@@ -6,7 +6,7 @@
 
 no copying/taking inspo/stealing my skins
 
-dni troll nd tt/td poniez 
+dni pponies who bother other poniez 4 no reason
 
 ### STATUS MEANINGS!
 
