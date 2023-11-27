@@ -1,6 +1,7 @@
 
 
-![](h[ttps://watermelon.crd.co/assets/images/gallery05/dba95250.gif?v=ab2f6a73](https://media.discordapp.net/attachments/1032530237738725407/1112364878905233528/d0291d22.gif?ex=6575b685&is=65634185&hm=e4b75609caa94c7ce9cb0926e81f2c9342a988bdc4628d9ccdcf526f0da182af&=&width=62&height=62)) haiaiaiaiiiiiaiiiiiiiGHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAI
+ ![d0291d22](https://github.com/kyubao/kyubao/assets/144448426/14d86478-b561-4c8a-9c3b-672b0b481e44)
+haiaiaiaiiiiiaiiiiiiiGHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAI
 ###  PT RULEZ!!! 
 
 
