@@ -14,3 +14,4 @@ erm i can also get embarrased easily lalwlalwll
 u can find  me at the hoyo area, below the mine, campsite ;P
 ![](https://file.garden/ZeQsUxqOoVX2psZh/Untitled266_20240729222002-2.png)
  ![](https://oyster.ignimgs.com/mediawiki/apis.ign.com/honkai-star-rail/d/d6/Luocha.png?width=640)
+ # whatthe yaori
