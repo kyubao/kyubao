@@ -1,7 +1,7 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kyubao)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=heeeeyyyyyyyyyhhh !!!!!!!!!!!!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=heeeeyyyyyyyyyhhh!!!!!!!!!!!!!)](https://git.io/typing-svg)
 
 hi there! why dont you sign my [atabook?](https://kyubao.atabook.org/) ^_^
 
