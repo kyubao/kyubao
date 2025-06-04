@@ -1,4 +1,6 @@
-hi
+hi there! 
+
 not really active on pony town
-[test](https://2tym.straw.page/)
+
+[strawpage](https://2tym.straw.page/)
 
