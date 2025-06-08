@@ -4,7 +4,6 @@
 
 　　　　　　│ [atabook](https://kyubao.atabook.org/) 
 
-　　　　　　│    ^___^
 
 　　　　　　╰┈┈┈┈┈╯
   
