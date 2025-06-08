@@ -1,10 +1,10 @@
-╭══◚══╮
+　　　　　　╭══◚══╮
 
-│ [directory site](https://insufferableprickhead.straw.page/)
+　　　　　　│ [directory](https://insufferableprickhead.straw.page/)
 
-│ [atabook](https://kyubao.atabook.org/) 
+　　　　　　│ [atabook](https://kyubao.atabook.org/) 
 
-│    ^___^
+　　　　　　│    ^___^
 
-╰┈┈┈┈┈╯
+　　　　　　╰┈┈┈┈┈╯
   
