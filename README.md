@@ -1,5 +1,6 @@
-[directory](https://insufferableprickhead.straw.page/)
+==> [directory](https://insufferableprickhead.straw.page/)
 
-[atabook](https://kyubao.atabook.org/) 
-  
-![](https://file.garden/ZeQsUxqOoVX2psZh/clinical-trial-clinical-trial-game.gif){200:200}
+==> [atabook](https://kyubao.atabook.org/) 
+
+==> [strawpage](https://2tym.straw.page/)
+![](https://file.garden/ZeQsUxqOoVX2psZh/clinical-trial-clinical-trial-game.gif)
