@@ -1,6 +1,9 @@
 stomach void
 
 this is for pony town
-most offtab so ill probably disconnect a lot
+
+mostly offtab so ill probably disconnect a lot
+
 c + h okay
+
 no inspo or copy yeah
