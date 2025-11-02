@@ -1,4 +1,5 @@
 start digging in my stomach void twin
+[directory](https://rentry.co/str) [extended](https://rentry.co/stomachvoid)
 
 this is for pony town
 
